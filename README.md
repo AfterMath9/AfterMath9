@@ -12,7 +12,7 @@
 
 - 📫 Reach me at **amrmafalani@yahoo.com**
 
-- 📄 Know more about me [https://amr1sy.github.io/AfterMath1/](https://amr1sy.github.io/AfterMath1/)
+- 📄 Know more about me [https://AfterMath9.github.io/AfterMath1/](https://AfterMath9.github.io/AfterMath1/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
